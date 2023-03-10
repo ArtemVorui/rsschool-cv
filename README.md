@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ArtemVorui.github.io/rsschool-cv/
